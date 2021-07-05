@@ -1,6 +1,6 @@
 # _Hello my future friends!_ 
 
-I'm Luísa, almost 17yo and studying at a technical college ✿
+I'm Luísa, almost 17yo and studying at a technical college. ✿
 Just a very stupid and slow teenager, who tries **not** to repeat a year and understand some things in the I.T area! ✿✿
 
 - CTISM/UFSM - Info 
@@ -28,10 +28,10 @@ Art account coming soon!!
 - [Instagram](https://www.instagram.com/luisafzn/)
 - [ArtStation](https://www.artstation.com/fanonzee/profile)
 
-I'm actually lowprofile, sorry 🤧
+I'm actually lowprofile, sorry! 🤧
 ____
 #### e-mail and formalities ✿
 
-You can e-mail me at, luisafantonizanoon@gmail.com, if you want!
+You can e-mail me at, luisafantonizanoon@gmail.com, if you want.
 
 ![A cena da chihiro correndo](https://64.media.tumblr.com/cbb9cc6dce931727365b702c404a4565/tumblr_nqzaefTh7u1rii88ro1_500.gifv "chihiro")
