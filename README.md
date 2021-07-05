@@ -30,3 +30,8 @@ Art account coming soon!!
 
 I'm actually lowprofile, sorry 🤧
 ____
+#### e-mail and formalities ✿
+
+You can e-mail me at, luisafantonizanoon@gmail.com, if you want!
+
+![A cena da chihiro correndo](https://64.media.tumblr.com/cbb9cc6dce931727365b702c404a4565/tumblr_nqzaefTh7u1rii88ro1_500.gifv "chihiro")
