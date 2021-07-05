@@ -21,3 +21,11 @@ ____
 
 My favorite manga are _Jibaku Shounen Hanako-kun_ and _Blue Period_, but i really like Jujutsu Kaisen, Sailor Moon and Soul Eater!
 ______
+### Find me ✿
+Art account coming soon!!
+- [Twitter](https://twitter.com/fanonzee)
+- [Instagram](https://www.instagram.com/luisafzn/)
+- [ArtStation](https://www.artstation.com/fanonzee/profile)
+
+I'm actually lowprofile, sorry 🤧
+____
