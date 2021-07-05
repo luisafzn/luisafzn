@@ -1,7 +1,7 @@
 # _Hello my future friends!_ 
 
 I'm Luísa, almost 17yo and studying at a technical college. ✿
-Just a very stupid and slow teenager, who tries **not** to repeat a year and understand some things in the I.T area! ✿✿
+Just a very stupid and slow teenager, trying **not** to repeat a year and learn a few things in the I.T area! ✿✿
 
 - CTISM/UFSM - 423
 - **She/her** pronouns 
