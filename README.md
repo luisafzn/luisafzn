@@ -19,7 +19,7 @@ ____
 - Gameplays and streams 🎮
 - Zelda 🧝
 
-My favorite manga are _Jibaku Shounen Hanako-kun_ and _Blue Period_, but i really like _Jujutsu Kaisen_, _Sailor Moon_ and _Soul Eater_!
+My favorite manga are _Jibaku Shounen Hanako-kun_ and _Blue Period_, but i really like _Jujutsu Kaisen_, _Sailor Moon_, _Ouran HSHC_ and _Soul Eater_!
 ____
 ### Find me ✿
 
