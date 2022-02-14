@@ -7,7 +7,7 @@ Trying to learn a few things in the I.T area! ✿✿
 - **She/her** pronouns 
 - PT-BR/ENG 
 
-![Ghibli scenes](https://64.media.tumblr.com/53cc5e08d9547dd6eece902b25637b3f/tumblr_nqzaefTh7u1rii88ro3_500.gifv "scenes")
+![Ghibli scenes](https://64.media.tumblr.com/e7ca0b47b03b6899e5f5ebbcd5e876f8/e925de0d4ddad853-f9/s500x750/8dcf1073838979714edf276bde770e7f59fbe278.gifv "scenes")
 
 ____
 ### Hobbies ✿
