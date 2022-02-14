@@ -1,9 +1,9 @@
-# _Hello my future friends!_ 
+# _Hello!_ 
 
-I'm Luísa, almost 17yo and studying at a technical college. ✿
-Just a very stupid and slow teenager, trying **not** to repeat a year and learn a few things in the I.T area! ✿✿
+I'm Luísa, almost 18yo and studying at a technical school. ✿
+Trying **not** to repeat a year and learn a few things in the I.T area! ✿✿
 
-- CTISM/UFSM - 423
+- CTISM/UFSM - 433
 - **She/her** pronouns 
 - PT-BR/ENG 
 
@@ -17,13 +17,11 @@ ____
 - Visit new cafés ☕️
 - Watch anime and read manga 🎥
 - Gameplays and streams 🎮
-- Zelda 🧝
 
 My favorite manga are _Jibaku Shounen Hanako-kun_ and _Blue Period_, but i really like _Jujutsu Kaisen_, _Sailor Moon_, _Ouran HSHC_ and _Soul Eater_!
 ____
 ### Find me ✿
 
-Art account coming soon!!
 - [Twitter](https://twitter.com/fanonzee)
 - [Instagram](https://www.instagram.com/luisafzn/)
 - [ArtStation](https://www.artstation.com/fanonzee/profile)
