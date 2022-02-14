@@ -1,7 +1,7 @@
 # _Hello!_ 
 
 I'm Luísa, almost 18yo and studying at a technical school. ✿
-Trying **not** to repeat a year and learn a few things in the I.T area! ✿✿
+Trying to learn a few things in the I.T area! ✿✿
 
 - CTISM/UFSM - 433
 - **She/her** pronouns 
