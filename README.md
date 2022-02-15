@@ -1,6 +1,6 @@
 # _Hello!_ 
 
-I'm Luísa, almost 18yo and studying at a technical school. ✿
+I'm Luísa, almost 18yo technical school student. ✿
 Trying to learn a few things in the I.T area! ✿✿
 
 - CTISM/UFSM - 433
