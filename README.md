@@ -17,7 +17,8 @@ ____
 - Read fantasy books 📚
 - Watch anime and read manga 🎥
 
-My favorite manga are _Jibaku Shounen Hanako-kun_ and _Blue Period_
+> My favorite manga are _Jibaku Shounen Hanako-kun_ and _Blue Period_ !!
+> I kin Yashiro from JSHK and Sugawara from Haikyuu!
 ____
 ### Find me at ✿
 
