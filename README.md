@@ -24,6 +24,7 @@ ____
 
 - [Twitter](https://twitter.com/fanonzee)
 - [Instagram](https://www.instagram.com/luisafzn/)
+- [Spotify](https://open.spotify.com/user/445y37cblbm9y6tr1dtih0ivo?si=b641f5a2ef20459d)
 ____
 #### e-mail and formalities ✿
 
