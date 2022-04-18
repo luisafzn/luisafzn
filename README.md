@@ -12,21 +12,17 @@ Trying to learn a few things in the I.T area! ✿✿
 ____
 ### Hobbies ✿
 
-- Paint with **watercolor** 🎨
-- Digital art ✏️
+- Paint with watercolor and digital art 🎨 ️
 - Visit new cafés ☕️
+- Read fantasy books 📚
 - Watch anime and read manga 🎥
-- Gameplays and streams 🎮
 
-My favorite manga are _Jibaku Shounen Hanako-kun_ and _Blue Period_, but i really like _Jujutsu Kaisen_, _Sailor Moon_, _Ouran HSHC_ and _Soul Eater_!
+My favorite manga are _Jibaku Shounen Hanako-kun_ and _Blue Period_
 ____
-### Find me ✿
+### Find me at ✿
 
 - [Twitter](https://twitter.com/fanonzee)
 - [Instagram](https://www.instagram.com/luisafzn/)
-- [ArtStation](https://www.artstation.com/fanonzee/profile)
-
-I'm actually lowprofile, sorry! 🤧
 ____
 #### e-mail and formalities ✿
 
