@@ -6,6 +6,8 @@ Trying to learn a few things in the I.T area! ✿
 - CTISM/UFSM - 433
 - **She/her** pronouns 
 - PT-BR/ENG 
+- [![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=luisafzn)](https://github.com/anuraghazra/github-readme-stats)
+- [![Top Langs](https://github-readme-stats.vercel.app/api/top-langs/?username=luisafzn&layout=compact)](https://github.com/anuraghazra/github-readme-stats)
 
 ![girassol](https://64.media.tumblr.com/5e599f261b1c471bdbf57e52c0028678/tumblr_plfsfqo0Gk1rbud4zo1_500.gifv "girassol")
 
